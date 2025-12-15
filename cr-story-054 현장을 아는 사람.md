@@ -27,7 +27,6 @@
 
 발신자: citizne17@cr-project.org
 
-클릭한다.
 
 ## 1. 마감이라는 전쟁
 
